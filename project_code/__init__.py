@@ -1,1 +1,1 @@
-I did not make any progress today, I didnt have time.
+I have no time to work on the project today.
